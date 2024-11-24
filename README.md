@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how AI can aid in language acquisition and methodology
 - 💞️ I’m looking to collaborate on learning games
 - 📫 How to reach me support@risentidellc.com
-- 😄 Pronouns: him/his
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I just enjoy learning new things.
 
 <!---
